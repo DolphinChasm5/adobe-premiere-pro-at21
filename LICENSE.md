@@ -1,4 +1,4 @@
-# 
+# rare Adobe Premiere Pro for PC | Adobe Premiere Pro for Windows Script | real-time-preview + auto-cut offers the most advanced Adobe Premiere Pro for PC | Adobe Premiere Pro for
 
 
 
